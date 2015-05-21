@@ -40,9 +40,17 @@ IT Staff Cliches
 
 - Richard Stallman For Life!
 
-- Reads your email guy
+- Reads your email type
 
 - Secret Hoarder (only I know the password)
-- 
+
+- The IT person who pretends they don't want to be in IT.
+(I really want to be a performance artist, but this is what I'm doing right now to pay the bills.)
+
+- Too Good To Touch Printers
+
+- The Briber (Hooks you up with a sweet monitor, but then is always hassling you about something over it.)
+
+
 
  
