@@ -1,4 +1,5 @@
 What's a cliche?
+Hrm -- maybe these are stero types, and not cliches...
 
 User Cliches
 
@@ -40,5 +41,8 @@ IT Staff Cliches
 - Richard Stallman For Life!
 
 - Reads your email guy
+
+- Secret Hoarder (only I know the password)
+- 
 
  
